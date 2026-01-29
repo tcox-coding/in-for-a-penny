@@ -1,3 +1,4 @@
 full_text_chain.pdf filter=lfs diff=lfs merge=lfs -text
 metoo-fuckyou.zip filter=lfs diff=lfs merge=lfs -text
 full_snapchat_chain.mp4 filter=lfs diff=lfs merge=lfs -text
+S-GAMs.zip filter=lfs diff=lfs merge=lfs -text
