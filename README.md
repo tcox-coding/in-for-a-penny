@@ -19,3 +19,5 @@ https://www.youtube.com/watch?v=gCGNYJOrebA&list=RDgCGNYJOrebA&start_radio=1
 https://www.youtube.com/watch?v=BXmEJL1mnuU&list=RDgCGNYJOrebA&index=2
 
 You couldn't even give me a bot to talk to. Kill yourself.
+
+And then there's the druggie dumbass who said she faked it.
