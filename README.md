@@ -23,3 +23,5 @@ You couldn't even give me a bot to talk to. Kill yourself.
 And then there's the druggie chinese dumbass who said she faked it. Who said it in song for plausible deniability. Even if she admitted to faking her own kidnapping, I find it speculative at best in this system.
 
 https://www.youtube.com/watch?v=Dt6iTwVIiMM
+
+And then I do the same thing he does and you get mad at me. Kill yourself.
