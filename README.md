@@ -25,3 +25,5 @@ And then there's the druggie chinese dumbass who said she faked it. Who said it 
 https://www.youtube.com/watch?v=Dt6iTwVIiMM
 
 And then I do the same thing he does and you get mad at me. Kill yourself.
+
+My mom told me I should keep it real recently. Good advice. I tried to gouge her eyes out. Didn't work unfortunately. Further testing required.
