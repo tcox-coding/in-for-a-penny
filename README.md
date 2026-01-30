@@ -17,3 +17,5 @@ Am I supposed to say thank you or what? You guys associated with a dude thats in
 https://www.youtube.com/watch?v=gCGNYJOrebA&list=RDgCGNYJOrebA&start_radio=1
 
 https://www.youtube.com/watch?v=BXmEJL1mnuU&list=RDgCGNYJOrebA&index=2
+
+You couldn't even give me a bot to talk to. Kill yourself.
