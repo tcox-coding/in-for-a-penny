@@ -20,6 +20,6 @@ https://www.youtube.com/watch?v=BXmEJL1mnuU&list=RDgCGNYJOrebA&index=2
 
 You couldn't even give me a bot to talk to. Kill yourself.
 
-And then there's the druggie dumbass who said she faked it. Even if she admitted to faking her own kidnapping, I find it speculative at best in this system.
+And then there's the druggie chinese dumbass who said she faked it. Who said it in song for plausible deniability. Even if she admitted to faking her own kidnapping, I find it speculative at best in this system.
 
 https://www.youtube.com/watch?v=Dt6iTwVIiMM
