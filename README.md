@@ -43,3 +43,5 @@ After I went to the hospital my burner got deleted. Unfortunate. Proved criminal
 https://www.youtube.com/watch?v=Bde4EfwOfsY&list=RDBde4EfwOfsY&start_radio=1
 
 In what fucking universe does this get me hospitalized again?
+
+It's kinda funny because regardless of the outcome I get proven correct. Welcome to reality. If there is no winning then I'll be the biggest fucking loser with a cackle.
