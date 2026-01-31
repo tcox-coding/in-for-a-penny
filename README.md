@@ -41,3 +41,5 @@ And, Thank You WPI. I hope your company burns to the ground.
 After I went to the hospital my burner got deleted. Unfortunate. Proved criminal liability for the mob boss.
 
 https://www.youtube.com/watch?v=Bde4EfwOfsY&list=RDBde4EfwOfsY&start_radio=1
+
+In what fucking universe does this get me hospitalized again?
