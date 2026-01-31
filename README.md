@@ -29,3 +29,5 @@ And then I do the same thing he does and you get mad at me. Kill yourself.
 My mom told me I should keep it real recently. Good advice. I tried to gouge her eyes out. Didn't work unfortunately. Further testing required.
 
 https://www.youtube.com/watch?v=fXZj4Wy58Pk
+
+The best part is I still think it was the fucking kikes acting like Mossad agents. Jack or Ezra.
