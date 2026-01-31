@@ -33,3 +33,5 @@ https://www.youtube.com/watch?v=fXZj4Wy58Pk
 The best part is I still think it was the fucking kikes acting like Mossad agents. Jack or Ezra.
 
 So it's either the dogshit police department that can't keep it in their pants, the company that likes the guy who's into kiddie porn, the drugged up asshole who can't stop smoking weed because he's "undiagnosed ADHD", the mob boss kike Jack who should learn how to do a little more of his name for the betterment of society, or the pathetic little shrooms guy.
+
+Weep to the internet about what is inside and outside your control a little more please.
