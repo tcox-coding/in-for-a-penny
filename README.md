@@ -49,3 +49,15 @@ It's kinda funny because regardless of the outcome I get proven correct. Welcome
 If that tip to the FBI was seriously about me being worried about killing herself, I hope it fucking happens 💔. It's merciful.
 
 https://www.youtube.com/watch?v=MtyrwXEPxpQ&list=RDMtyrwXEPxpQ&start_radio=1
+
+https://www.youtube.com/watch?v=fpoIK6G3QpU&list=RDfpoIK6G3QpU&start_radio=1
+
+Cause kimmy you're a fireeeworrrrrk :) https://www.youtube.com/watch?v=M6_e1nWFolg
+
+https://www.youtube.com/watch?v=KglVj16r5Vw
+
+https://www.youtube.com/watch?v=D4Bfv6qv9iw
+
+https://www.youtube.com/watch?v=yqv1LW3gZgo
+
+https://www.youtube.com/watch?v=XsReb6JGzXw
