@@ -47,3 +47,5 @@ In what fucking universe does this get me hospitalized again?
 It's kinda funny because regardless of the outcome I get proven correct. Welcome to reality. If there is no winning then I'll be the biggest fucking loser with a cackle.
 
 If that tip to the FBI was seriously about me being worried about killing herself, I hope it fucking happens 💔. It's merciful.
+
+https://www.youtube.com/watch?v=MtyrwXEPxpQ&list=RDMtyrwXEPxpQ&start_radio=1
