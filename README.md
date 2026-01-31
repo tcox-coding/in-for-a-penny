@@ -79,3 +79,5 @@ https://www.youtube.com/watch?v=KIg3N4PF3Bc&list=RDaxbL5_VDpRs&index=11
 https://www.youtube.com/watch?v=ySZy1nhUhZo&list=RDaxbL5_VDpRs&index=12
 
 https://www.youtube.com/watch?v=uJNvZRAmeqY&list=RDuJNvZRAmeqY&start_radio=1
+
+You're gonna have to trust me when I say the lesser of two evils was watching a kid getting fucked 😂. Horrifying.
