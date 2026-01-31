@@ -37,3 +37,5 @@ So it's either the dogshit police department that can't keep it in their pants, 
 Weep to the internet about what is inside and outside your control a little more please.
 
 And, Thank You WPI. I hope your company burns to the ground.
+
+After I went to the hospital my burner got deleted. Unfortunate. Proved criminal liability for the mob boss.
